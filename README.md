@@ -23,8 +23,3 @@ Thanks for reading. Maybe I’ll make something you like.
 
 📱 You can find me on Polybuz and Talkie as Vanta Blackrose. I’ve also got a Discord server in the works where you’ll be able to chat with my most popular characters in real time.
 
-
----
-
-Let me know if you want an even punchier version, or a link-in-bio one-liner.
-
